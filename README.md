@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SparkyKnight98
+- 👋 Hi, I’m James!
 - 👀 I’m interested in networking, making creative friends, and learning all I can!
 - 🌱 I’m currently learning how to use UE4, Unity, and Blender! :D 
 - 💞️ I’m looking to collaborate on whatever I can get my hands on. :P 
